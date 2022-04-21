@@ -1,4 +1,5 @@
 # visualargument2
+This image features three former Pirates players, the PNC park stadium at night, and the text reading "Let's Go Bucs!". The overarching theme of this image is to overall promote the Pirates organization. The thought behind this image was simply to create a professional image that could possibly appear on the social media of the Pirates organization.
 Assests:
 Pirates Stadium: "PNC Park All Lit Up For Christmas" by Pirates on Twitter
 under fair use
